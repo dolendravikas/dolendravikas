@@ -1,4 +1,4 @@
-### Hi there, I'm vikas - aka [vikky](vikky.netlify.app) 👋 
+### Hi there, I'm vikas - aka [vikky](https://vikky.netlify.app/) 👋 
 
 ### About me
 
